@@ -12,6 +12,4 @@ Pero despues se la comió el lobo FERóZ pues le gustaba la carne FRESCA y TIERN
 
 Pasame unops tips para tener un buen de morras como Tú we
 
-Es de ser verguero, romántico y bueno en la cama, también tratárlas un poquito mal ;)
-
-Pero son culeras y te chupan el alma
+No tengo idea, las mujeres son confusas, son listas y están locas
